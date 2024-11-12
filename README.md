@@ -9,7 +9,7 @@
 
 - 💢 dream after graduating from college **sholat harus pantang**
 
-- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/ubaidillah-ali-010761252/](https://www.linkedin.com/in/erwin-fauzy-nurman-66b35a256/)
+- 👨‍💻 All of my projects are available at (https://www.linkedin.com/in/erwin-fauzy-nurman-66b35a256/)](https://www.linkedin.com/in/erwin-fauzy-nurman-66b35a256/)
 
 - 💬 Ask me about **buatlah orang tuamu menangis dengan kesuksesanmu**
 

@@ -11,13 +11,10 @@
 
 - 👨‍💻 All of my projects are available at (https://www.linkedin.com/in/erwin-fauzy-nurman-66b35a256/)
 
-- 💬 Ask me about **buatlah orang tuamu menangis dengan kesuksesanmu**
-
 - 📫 How to reach me **erwin03fauzy@gmail.com**
 
 - 📄 Know about my experiences [http://wa.me//+628581557](http://wa.me//+6281237581345)
 
-- ⚡ Fun fact **Hello World**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

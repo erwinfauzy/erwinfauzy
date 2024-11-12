@@ -1,9 +1,6 @@
 
 [![MasterHead](https://i.postimg.cc/0jbd1M97/Capture.png)](https://iniubaaii.io)
 <h1 align="center">Hi 👋, I'm Erwin Fauzy Nurman</h1>
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=iniubaaii&label=Profile%20views&color=0e75b6&style=flat" alt="iniubaaii" /> </p>
-
-<p align="left"> <a href="https://twitter.com/iniubaai" target="blank"><img src="https://img.shields.io/twitter/follow/iniubaai?logo=twitter&style=for-the-badge" alt="iniubaai" /></a> </p>
 
 - 👨‍🎓 I'm an undergraduate student Informatics Engineering 2021
 

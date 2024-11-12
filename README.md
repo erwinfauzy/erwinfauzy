@@ -1,5 +1,5 @@
 
-[![MasterHead](https://i.postimg.cc/0jbd1M97/Capture.png)](https://iniubaaii.io)
+
 <h1 align="center">Hi 👋, I'm Erwin Fauzy Nurman</h1>
 
 - 👨‍🎓 I'm an undergraduate student Informatics Engineering 2021
